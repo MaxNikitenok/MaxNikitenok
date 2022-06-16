@@ -1,4 +1,4 @@
-- 👋🖖 Hi, I’m Max Nikitenok
+- 👋🖖 Hi, I’m Max Nikitenok, I'm a beginner front-end developer
 - 👀 I’m interested in developing websites and applications
 - 🌱 I’m currently a student at the Rolling Scopes School and also learning English on my own.   
 - 🧑‍💻 I'm looking for my first job in front-end development
