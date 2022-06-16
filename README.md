@@ -6,6 +6,5 @@
             ▪️ Telegram - https://t.me/Max_Nikitenok  
             ▪️ Discord - MaxNikitenok#3972  
             ▪️ Mail - xxx250790@gmail.com  
-            ▪️ tel - +375297464832    
             ▪️ Linkedin - linkedin.com/in/max-nikitenok-642778237       
 
